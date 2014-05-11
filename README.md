@@ -28,7 +28,9 @@ http://hexayurt.com/
 
 Water filtration - learn how products like this work and their various parameters
 http://sawyer.com/products/type/water-filtration/
-Can give you fresh water for $1 per lifetime!
+Can give you fresh water for $1 per lifetime! This one removes viruses too, and
+works with a bucket so better for volume.
+http://www.amazon.com/Sawyer-PointTwo-Purifier-Bucket-Adapter/dp/B0051HHNJ8
 
 Global Village Construction Set - watch videos of some kit, general update
 about how it is going, consider whether we can make some of it ourselves now
