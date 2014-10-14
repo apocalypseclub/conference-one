@@ -36,4 +36,7 @@ Global Village Construction Set - watch videos of some kit, general update
 about how it is going, consider whether we can make some of it ourselves now
 http://opensourceecology.org/wiki/Main\_Page
 
+Solar charger
+http://www.amazon.co.uk/gp/product/B00IPBH5AO
+
 
